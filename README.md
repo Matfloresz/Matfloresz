@@ -12,5 +12,7 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: fogo gratis
 - ⚡ Fun fact: sou mestre no free fire
+
+
 ![](https://media4.giphy.com/media/npC3DfyQBPAYYlqE8L/giphy.webp?cid=790b7611ylocdj29kseuv4hv1h6e41b1mkjj7a4vu24sdygv&ep=v1_gifs_search&rid=giphy.webp&ct=g)
 
